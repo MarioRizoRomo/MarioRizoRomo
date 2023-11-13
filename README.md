@@ -5,4 +5,4 @@ I am currenly learning programming
 I learn fast 
 ### Contact
 My email is (mariorizo413@gmail.com)
-![Uploading gif.gif…]()
+
